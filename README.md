@@ -1,5 +1,5 @@
 - Hi, I’m @writetohoney, a professionally awkward government nerd
-- I’m obsessed in making government work better
+- I’m obsessed with making government work better
 - And I’m constantly learning
 
 
